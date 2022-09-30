@@ -8,6 +8,7 @@
 - 🔭 Atualmente estou trabalhando como Desenvolvedor de Sistemas
 - 🌱 Graduando Sistemas de Informação
 - 📞 (31) 9 9418-7279
+- ✉️ daniel.rabelo@fiskaldigital.com.br
 
 ##
 
